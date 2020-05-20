@@ -1,2 +1,2 @@
-# Blocky Fix
- Blocky Fix Privacy Policy
+# Wipeout shooter
+ Wipeout shooter Privacy Policy
